@@ -1,4 +1,4 @@
-#  
+#  Experience get strong for brainrots like never before with hidden get strong for brainrots Scripts, the #1 Script. Includes auto-upgrade and teleport
 
 
 
